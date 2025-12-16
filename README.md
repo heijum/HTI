@@ -1,2 +1,2 @@
 # HTI
-hti is a token meme for anime lovers
+hti is a token meme for anime hentai lovers
